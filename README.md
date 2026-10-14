@@ -23,4 +23,4 @@ My Bolognese is probably better than yours – hit me up if you want to swap rec
 
 </details>
 
-[Portfolio](https://www.valentin-englert.de/) · [LWNZHN](https://www.lwnzhn.com/)
+[Portfolio](https://www.lwnzhn.com/))
